@@ -6,4 +6,4 @@
 * clothes cleaning  :dissapointed:
 * cinema 
 * call a friend
- * someone funny
+ * someone funny :grin:
