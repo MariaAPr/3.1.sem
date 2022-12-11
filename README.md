@@ -3,7 +3,7 @@
 ## to do list 
 * shopping 
 * house cleaning 
-* clothes cleaning 
+* clothes cleaning  :dissapointed:
 * cinema 
 * call a friend
  * someone funny
